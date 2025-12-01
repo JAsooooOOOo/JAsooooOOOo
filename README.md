@@ -1,5 +1,5 @@
 # hi
-Hi, hi hello. I am Dude. Hi hello hi hello hi, strawpage for more info.
+Hi, hi hello. I am Dude. Hi hello hi hello hi, [strawpage](https://hihellobyenowhat.straw.page) (or my [guns.lol](https://guns.lol/dude2003)  for more info.
 
 I'm so cool, trust me on that.
 
