@@ -18,3 +18,5 @@ Uhhhhhh I usually just lurk around or with @dragondudes333 . I enjoy when people
 
 
 Im into Postal, madcom, friday the thirteen and more.
+
+cismale I'm ok with anythin 'xcept that neopronoun shit and female terms.
