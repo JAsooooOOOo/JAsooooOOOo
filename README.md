@@ -17,6 +17,6 @@ Uhhhhhh I usually just lurk around or with @dragondudes333 . I enjoy when people
 ![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/postal-braindamaged-postal%20(1).gif?raw=true) ![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/postal-braindamaged-postal.gif?raw=true)
 
 
-Im into Postal, madcom, friday the thirteen and more.
+Im into Postal, madcom, friday the thirteen, cry of fear and more.
 
 cismale I'm ok with anythin 'xcept that neopronoun shit and female terms.
