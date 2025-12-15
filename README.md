@@ -1,23 +1,20 @@
-# DUDE'S EPIC FUCKIN GITHUB
-Hi, I'm Dude ( or Jason.) I usually hang around as dude, usually near newgrounds area, valve/tf2 area or anywhere really. Almost always with my [partner](https://github.com/dragondudes333) tho
+# I'm dude
+(or Jason)
+I don't play the game alot, ask for my dc if you wanna be friends ( bigbadaud on dc )
+I like postal, cry of fear, madness combat, friday the thirteen and such
+I don't like weirdos and losers
+! [image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/OHMYGODOHMYGOD.gif?raw=true)
+cismale, shout out to [my partner whom I love and cherish and do anythin in the world for ( FUCKIN FAGGOOOOOOOOOOOOOTT )](https://github.com/dragondudes333)
 
-[strawpage](https://hihellobyenowhat.straw.page) links links links links links links [guns.lol](https://guns.lol/dude2003)
 
+
+
+
+
+
+hasta la pasta my dear!
 ![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/AHHHHSCATTER.gif?raw=true)
 
-Big Postal, Friday the thirteen, madness combat, transformers, cry of fear and team6/ vanoss crew  fan. :)
 
-![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/joyousjason.gif?raw=true)
 
-Big Jason Voorhees fan, he my goat bruh
-uuhhhh Nazis, proshippers, systems ( just da fake ones bruh I can tell when someone is fakin usually its obvious, LOL) and uhhhhh weird people yall r loser noobs lolol get on my frickin levell
-
-![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/BIGBALLS.gif?raw=true)
-
-not much too say check links 4 more
-
-![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/postal-braindamaged-postal.gif?raw=true) ![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/postal-braindamaged-postal%20(1).gif?raw=true)
-
-hasta la pasta, my dear!
-
-![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/OHMYGODOHMYGOD.gif?raw=true)
+Big other dude fan+ postal dude fan
