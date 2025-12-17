@@ -1,6 +1,6 @@
 # I'm dude
 (or Jason)
-I don't play the game alot, ask for my dc if you wanna be friends ( bigbadaud on dc )
+I don't play the game alot, ask for my dc if you wanna be friends ( [bigbadaud on dc](https://discordid.netlify.app/?id=1289019238333550622) )
 I like postal, cry of fear, madness combat, friday the thirteen and such
 I don't like weirdos and losers
 
